@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Jab2902 , 20 years old, 
+- 👋 Hi, I’m @Jab2902 ,
 - 👀 I’m interested in ... In making website,amd programing
 - 🌱 I’m currently learning ... Still a student currently having a class about programing/web designing
 - 💞️ I’m looking to collaborate on ...
